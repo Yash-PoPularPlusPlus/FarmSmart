@@ -1,1 +1,1 @@
-Collaboration of Yash Solanki, Yash Thakkar, Dyu Singla, Ishan Shah
+Collaboration of Yash Solanki, Yash Thakker, Dyu Singla, Ishan Shah
